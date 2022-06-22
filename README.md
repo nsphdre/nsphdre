@@ -1,0 +1,3 @@
+- Contact Information:
+  - Email: nsphdre@gmail.com
+  - Discord: PhDre#1424
